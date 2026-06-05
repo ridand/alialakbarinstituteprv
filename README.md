@@ -1,2 +1,0 @@
-# alialakbarinstituteprv
-اليوم التعريفي
